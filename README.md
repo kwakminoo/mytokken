@@ -1,2 +1,2 @@
 # mytokken
-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
+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
